@@ -1,9 +1,11 @@
 <br /> <br /> <br /> <br /> <br /> <br /> <br /> <br /> <br /> <br />
 <div align="center">
- <img src="https://github.com/user-attachments/assets/673afc8f-7dd8-4bcd-882a-396a8065336e" height=200 width=400> <br /> <br />
+ <img src="https://github.com/user-attachments/assets/32520174-c31f-4c1f-b3b3-98549e65ba79" height=200 width=400> <br /> <br />
  
-  [<img src="https://github.com/user-attachments/assets/6b44f562-67bf-4f46-b341-3d965598bd2b" height=40 weight=40>](https://easyliving.atabook.org/) <br /> <br />
- <img src="https://github.com/user-attachments/assets/d517740b-a004-4894-872d-5d129fc0ddd0">
+ $\color{#262626}{𝗛𝗜𝗔𝗧𝗨𝗦}$
+ 
+  [ATABOOK](https://easyliving.atabook.org/) <br /> <br />
+ 
 
 </div>
 <br /> <br /> <br /> <br /> <br /> <br /> <br /> <br /> <br /> <br />
