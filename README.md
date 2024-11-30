@@ -4,7 +4,7 @@
  
  $\color{#262626}{𝗛𝗜𝗔𝗧𝗨𝗦}$
 
-  [ATABOOK](https://easyliving.atabook.org/) <br /> <br /> <br />
+  [新BOOK](https://easyliving.atabook.org/) <br /> <br /> <br />
  
 
 </div>
