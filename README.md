@@ -1,6 +1,6 @@
 <br /> <br /> <br /> <br /> <br /> <br /> <br /> <br /> <br /> <br /> <br /> <br />
 <div align="center">
- <img src="https://github.com/user-attachments/assets/2e660430-0e5c-4722-967e-1548e8012281"> <br /> <br />
+ <img src="https://github.com/user-attachments/assets/d59fecfa-875e-4b9e-8a16-709923c8ae7f"> <br /> <br />
  
  $\color{#262626}{𝗛𝗜𝗔𝗧𝗨𝗦}$
 
