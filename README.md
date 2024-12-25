@@ -2,7 +2,8 @@
 <div align="center">
  <img src="https://github.com/user-attachments/assets/8dab5692-9d06-4197-b664-6b8ed76c90fb"> <br /> <br />
  
- $\color{#262626}{𝗛𝗜𝗔𝗧𝗨𝗦}$
+ $\color{#262626}{𝗛𝗜𝗔𝗧𝗨𝗦}$ <br />
+ $\color{#ab1818}{𝘮𝘦𝘳𝘳𝘺}$ $\color{#00000}{𝘬𝘶𝘳𝘰𝘮𝘢𝘴}$☃️
 
   [新BOOK](https://easyliving.atabook.org/) · [PRNS.CC](https://pronouns.cc/@sbcl) <br /> <br /> <br />
  
