@@ -5,7 +5,7 @@
  
  $\color{#262626}{𝗛𝗜𝗔𝗧𝗨𝗦}$ <br />
  $\color{#ab1818}{𝘮𝘦𝘳𝘳𝘺}$ $\color{#00000}{𝘬𝘶𝘳𝘰𝘮𝘢𝘴}$☃️ <br />
-<img src="https://github.com/user-attachments/assets/b7a6e790-2c19-4ee1-8d42-4b26bfcec2f4"> 𝘢𝘯𝘥 𝘩𝘢𝘱𝘱𝘺 $\color{#2856a1}{𝘯𝘦𝘸‎  𝘺𝘦𝘢𝘳}$ *!* <br />
+<img src="https://github.com/user-attachments/assets/b7a6e790-2c19-4ee1-8d42-4b26bfcec2f4"> 𝘢𝘯𝘥 𝘩𝘢𝘱𝘱𝘺 $\color{#2856a1}{𝘯𝘦𝘸‎ 𝘺𝘦𝘢𝘳}$ *!* <br />
  $\color{#3d5a7a}{10.28}$ ri $\color{#e0cae6}{৻ꪆ}$ <br />
  $\color{#9baec4}{︶︶︶︶︶}$ <br />
   [prns.cc](https://pronouns.cc/@sbcl) <br />
