@@ -5,6 +5,7 @@
  
  $\color{#262626}{𝗛𝗜𝗔𝗧𝗨𝗦}$ <br />
  $\color{#ab1818}{𝘮𝘦𝘳𝘳𝘺}$ $\color{#00000}{𝘬𝘶𝘳𝘰𝘮𝘢𝘴}$☃️ <br />
+ $\color{#3d5a7a}{10.28}$ ri $\color{#e0cae6}{৻ꪆ}$ <br />
  $\color{#9baec4}{︶︶︶︶︶}$ <br />
   [prns.cc](https://pronouns.cc/@sbcl) <br />
 
