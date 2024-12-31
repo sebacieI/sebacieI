@@ -13,5 +13,3 @@
 
 </div>
 <br /> <br /> <br /> <br /> <br /> <br /> <br /> <br /> <br /> <br /> <br /> <br />
-
-[![](https://visitcount.itsvg.in/api?id=easyIiving&label=%E2%80%8E%20&color=12&icon=4&pretty=false)](https://visitcount.itsvg.in)
