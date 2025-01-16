@@ -5,7 +5,7 @@
  
  $\color{#262626}{𝗛𝗜𝗔𝗧𝗨𝗦}$ <br />
  `psst` [friend](https://github.com/settings/profile) <img src="https://github.com/user-attachments/assets/c273e4cf-63e3-41ae-b0be-634cd22ea691"> <br />
-  click! [<img src="https://github.com/user-attachments/assets/620105a9-9673-4dab-8684-46b77664ecd7" height=40 weight=40>](https://pronouns.cc/@sbcl) click! <br />
+  click! [<img src="https://github.com/user-attachments/assets/dfba5231-a4f9-4236-adf3-e9a4c59a656f" height=40 weight=40>](https://pronouns.cc/@sbcl) click! <br />
   $\color{#3d5a7a}{10.28}$ ri $\color{#e0cae6}{৻ꪆ}$ <br />
    $\color{#9baec4}{︶︶︶︶︶𐙚}$ <br />
 
