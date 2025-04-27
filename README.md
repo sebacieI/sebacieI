@@ -1,8 +1,8 @@
 <br /> <br /> <br /> <br /> <br /> <br /> <br /> <br /> <br />
 <div align="center">
    
-# WHAT THE FUCK
-   <img src="https://github.com/user-attachments/assets/c0d193da-f711-4b51-b43e-7a222bd71965"> <br />
+   <img src="https://github.com/user-attachments/assets/1e7ef121-fe43-4048-8755-54c851c53e35"> <br />
+hmm <br />
    
 #
   <br /> <br /> <br /> <br />
