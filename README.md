@@ -1,4 +1,3 @@
 <br /> <br /> <br /> <br /> <br /> <br /> <br /> <br /> <br />
-<div align="center">
-   <img src="https://github.com/user-attachments/assets/fa264e2e-da06-4c46-aea3-55b4966ea8ef"> <br /> <br /> <br /> <br /> <br /> <br /> <br />
-</div>
+   ![](https://komarev.com/ghpvc/?username=sebacieI&style=plastic&label=🥩&color=452d2a) <br />
+   <img src="https://github.com/user-attachments/assets/a7684ccc-f0ec-4333-8cd1-72323e494a19"> <br /> <br /> <br /> <br /> <br /> <br /> <br />
